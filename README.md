@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Qhawe Mngomeni
+# 👋 Hi, I'm Ntokozo Qhawe Mngomeni
 
 **Aspiring SOC Analyst & Ethical Hacker | BSc Computer Science | Seeking Entry-Level Role**
 
