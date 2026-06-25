@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Ntokozo Mngomeni (Qhawe76981)
 
-*Aspiring Cybersecurity Professional | Networking Enthusiast | CS Student @ University of Limpopo*
+*Aspiring Cybersecurity Analyst | BSc Computer Science | Ethical Hacking · CCNA · Linux · PHP · Python | Seeking Entry-Level Role @ University of Limpopo*
 
 📍 Based in Pretoria | Currently at University of Limpopo (Turfloop Campus)
 
